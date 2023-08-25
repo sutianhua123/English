@@ -1,1 +1,12 @@
-[123](read://https_github.com/?url=https%3A%2F%2Fgithub.com%2Fsutianhua123%2FEnglish%2Fblob%2Fmaster%2FEnglishReading%2F2023%25E5%25B9%25B48%25E6%259C%258823%25E6%2597%25A5%253D%25E5%25AE%2589%25E5%2585%25A8%25E7%259F%25A5%25E8%25AF%2586-%25E9%259B%25B7%25E7%2594%25B5%25E5%25A4%25A9%25E6%25B0%2594.md)
+The backwardness of China must be changed.
+He offered some useful advice.
+Can you guess where I've been?
+Watch what I do, then you try.
+Go to him, tell him you're sorry.
+It's not as hard as I thought.
+Would you like tea or coffee?
+He didn't say he had company.
+She got top marks for her essay.
+Bacon was a famous essayist.
+There's a way across the fields.
+![image](https://github.com/sutianhua123/English/assets/128249997/e28ac2e1-3870-4092-94a5-4242be3f17e5)
